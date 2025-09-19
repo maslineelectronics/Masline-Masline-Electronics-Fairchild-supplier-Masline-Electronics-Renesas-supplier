@@ -1,0 +1,2 @@
+# Masline-Masline-Electronics-Fairchild-supplier-Masline-Electronics-Renesas-supplier
+Masline Electronics is a trusted Fairchild supplier and Renesas supplier, delivering genuine semiconductors, ICs, and power devices at competitive prices. With bulk discounts, secure checkout, and fast global shipping, Masline supports engineers, OEMs, and procurement teams with reliable sourcing and technical expertise.
